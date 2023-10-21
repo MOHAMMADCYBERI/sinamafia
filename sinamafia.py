@@ -66,7 +66,7 @@ i'm sina mafia...
                             💙 python 💙 
             
 it's the real filtering script!
-id rubik = @sina_mafia_asli
+id rubik =nagiadam koni lemor(sina mafia)
 Be so strong that those who mocked you kneel in front of you!
 tavajo"in script taghalobi ast gool in fard kasif sina mafia ro nakhorid"
 """
